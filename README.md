@@ -1,2 +1,2 @@
-# TechArmy
+# Tech
  
